@@ -1,0 +1,2 @@
+# Amario
+i'm bored
